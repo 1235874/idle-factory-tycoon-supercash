@@ -1,15 +1,14 @@
 <a href="http://bit.ly/idle-factory-tycoon-supercash"><img src="https://i.imgur.com/JofLywq.gif"></a>
-<h3><a href="http://bit.ly/idle-factory-tycoon-supercash">Click Here to Hack mmx Idle Factory Tycoon Coins Gems!</a></h3>
-<h3><a href="http://bit.ly/idle-factory-tycoon-supercash">Hack Coins Gems in mmx Idle Factory Tycoon!</a></h3>
+<h3><a href="http://bit.ly/idle-factory-tycoon-supercash">Click Here to Hack Idle Factory Tycoon Coins Gems!</a></h3>
+<h3><a href="http://bit.ly/idle-factory-tycoon-supercash">Hack Coins Gems in Idle Factory Tycoon!</a></h3>
 How to hack Coins Gems to get Free Coins Gems
-Learning how to hack coins Super Cash should be available, there are not many sites offering the legit hacks for free Coins Gems. Most of it is outdated due to latest patching from mmx Idle Factory Tycoon developer. Our Coins Gems mmx Idle Factory Tycoon Hack tool is unique to generate for you unlimited amount of resources for free. Why not waste your time and money while you can get it here for free of charge!
+Learning how to hack coins Super Cash should be available, there are not many sites offering the legit hacks for free Coins Gems. Most of it is outdated due to latest patching from Idle Factory Tycoon developer. Our Coins Gems Idle Factory Tycoon Hack tool is unique to generate for you unlimited amount of resources for free. Why not waste your time and money while you can get it here for free of charge!
 <a href="http://bit.ly/idle-factory-tycoon-supercash">http://bit.ly/idle-factory-tycoon-supercash<a>
 
 <h2>Proof of Hack</h2>
-<a href="http://bit.ly/idle-factory-tycoon-supercash"><img src="http://cheatgames.online/mmx-hill-dash-2-coins-Super Cash/img/proof.jpg"></a><br/>
+<a href="http://bit.ly/idle-factory-tycoon-supercash"><img src="http://cheatgames.online/idle-factory-tycoon-supercash/img/proof.jpg"></a><br/>
 MX Idle Factory Tycoon Hack Cheats 2018 Free Unlimited Gems & Super Cash. Our online hack version all you have to do is click the link to the Hack below and your Idle Factory Tycoon Hack is ready to use! Idle Factory Tycoon Hack Cheats are 100% safe and works for iOS Android Without Survey
 
-<a href="http://bit.ly/idle-factory-tycoon-supercash">http://bit.ly/idle-factory-tycoon-supercash<a>
 
 Idle Factory Tycoon Hack Cheats 2018 Free Super Cash & PacksFor Android iOS And Pc.
 The best way to hack Idle Factory Tycoon Hack Actually it is extremely simple, no coding, hacking, programming skills needed. You only want because our hack application works online,
